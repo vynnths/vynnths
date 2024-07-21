@@ -1,3 +1,2 @@
-Hey, im vynn, carrd is below if you wish to contact me.
-*any pronouns*!! __minor__
+Hey, im vynn
 https://v-ynn.carrd.co/
